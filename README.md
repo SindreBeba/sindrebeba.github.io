@@ -1,1 +1,1 @@
-# sindrebeba.github.io
+# sindrebeba.no
